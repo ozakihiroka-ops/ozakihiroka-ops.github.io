@@ -1,1 +1,0 @@
-# ozakihiroka-ops.github.io
